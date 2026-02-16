@@ -17,7 +17,7 @@ I am an IT graduate focused on bridging the gap between academic theory and indu
 - 🎯 **Target:** Junior Data Analyst / BI Trainee roles by late 2026.
 
 ## 📫 Let's Connect
-- [LinkedIn](www.linkedin.com/in/aadhil-s-h)
+- [LinkedIn](https://www.linkedin.com/in/aadhil-s-h)
 - [Email](mailto:aadhilsh2004@gmail.com)
 
 <!--
